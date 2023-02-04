@@ -30,7 +30,7 @@ xLabs
 # 🚦The Process
 ## 📜 1. Application
 
-[Apply here](https://forms.clickup.com/45049775/f/1aytxf-2230/JTHWNTS51O03DJYO9Z). Please discuss with us if you are unsure of any aspect of the application. You can contact us at x[g](mailto:grants@acala.foundation)rants@wormholenetwork.com
+[Apply here](https://forms.clickup.com/45049775/f/1aytxf-2230/JTHWNTS51O03DJYO9Z). Please discuss with us if you are unsure of any aspect of the application. You can contact us at xgrants@wormholenetwork.com
 
 ## 🔍 2. Review and Decision
 
